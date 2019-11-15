@@ -2,13 +2,15 @@
 Baby's first repository
 
 
-I'm a Leo's Leo
+I'm a Leo's Leo.
 
 A sunshine-lovin, 
 curly-haired queen.  
 
-Windy fire- whiping up dust and heat
+Windy fire- whiping up dust and heat,
 thats me.  
 
 I love puzzles, 
-metal design & fabrication, hiking and making food with family/friends. 
+playing with metal, hiking and biking
+
+and most of all -making food with family/friends. 
